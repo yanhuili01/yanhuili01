@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yanhuili01
+- 👋 Hi, I’m Mary. @yanhuili01
 - 👀 I’m interested in reading and walking.
 - 🌱 I’m currently learning deep learning.
 - 💞️ I’m looking to collaborate on project management.
